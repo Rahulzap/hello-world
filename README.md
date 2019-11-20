@@ -1,2 +1,3 @@
 # hello-world
 learning github
+i am so anxiuos right now, i dont know what to do. i feel like i should be doing something big this summer break and should be learning new things so i thought i would learn github and also work on some 3d modelling. but there are things that are bagging me and dragging me down........
